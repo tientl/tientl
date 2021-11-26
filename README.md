@@ -1,3 +1,2 @@
 
-![Alt Text](https://mograph.video/2HwFiELL)
-![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
+![Alt Text](https://media.giphy.com/media/26tn33aiTi1jkl6H6/giphy.gif)
